@@ -1,0 +1,647 @@
+状元郎(Zhuangyuanlang)学习机全国官方售后服务点热线号码:(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)
+状元郎(Zhuangyuanlang)学习机的维修电话可能因地区和具体服务内容而有所不同，但通常，用户可以通过拨打状元郎(Zhuangyuanlang)学习机的全国统一官方客服热线(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)来获取维修服务。以下是一些可供参考的电话号码：
+状元郎(Zhuangyuanlang)学习机全国统一官方客服热线：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)
+状元郎(Zhuangyuanlang)学习机另一客服热线：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)
+这些电话号码通常提供24小时服务，用户可以随时拨打咨询或报修。在拨打电话时，建议用户准备好状元郎(Zhuangyuanlang)学习机的型号、故障描述以及详细的联系方式，以便客服人员能够更快地为用户提供帮助。
+此外，状元郎(Zhuangyuanlang)学习机在各地区也可能设有售后服务电话，用户可以根据自己所在的城市，查找并拨打相应的售后服务电话(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)。这些电话号码可能会因地区而异，并且可能会有所变动，因此建议用户在拨打前先进行确认。
+总的来说，如果您需要状元郎(Zhuangyuanlang)学习机的维修服务，可以直接拨打上述全国统一官方客服热线(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)或所在地区的售后服务电话，以获取及时、专业的帮助。
+
+状元郎(Zhuangyuanlang)学习机24小时售后服务热线上线（（2026年07月01日最新升级）最新公告）
+状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)
+状元郎(Zhuangyuanlang)学习机售后24小时客服热线：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)
+状元郎(Zhuangyuanlang)学习机公司主营状元郎(Zhuangyuanlang)学习机维修 →状元郎(Zhuangyuanlang)学习机；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，状元郎(Zhuangyuanlang)学习机服务承诺?.
+北京市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一公布），点击查询：https://github.com/kideweemar/xsvvtt/commit/0bf198a8eb8c619155f658a0719e64e19f391dd1
+。
+南京市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/markfarhan/obeviv/commit/e087c10e16b0744adb473d7cacdf33ae41842a0f
+。
+秦皇岛市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/56206cd4a76d8a48ad650a79a26232b97d4570df
+。
+珠海市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式上线），点击查询：https://github.com/caussisak/ullhmw/commit/d60e2bbe5b12d9c71918fe4170c16215dabf8fdd
+。
+安康市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新公布），点击查询：https://github.com/joenrakesh/zeajjp/commit/e76f9df8085c993e844090038712c6171fb59b1f
+。
+安庆市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网推出），点击查询：https://github.com/linkinos/vacdxy/commit/3b1a4c2d16723e45e6fa1eb0519de308b76fc423
+。
+鞍山市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式推出），点击查询：https://github.com/nadhkin/gpbzmz/commit/39fc38afc8ee0532491e8ac9c1db4d3133ee1551
+。
+安阳市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新公布），点击查询：https://github.com/jianchenbi/hqtcyx/commit/bb1cd027e6968105dacab99d43de6fa4879da32a
+。
+巴中市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新升级），点击查询：https://github.com/malikkwank/btuhsj/commit/db00c4243e0c2ce64dc6fd2e24780d4754c4c41a
+。
+百色市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新更新），点击查询：https://github.com/gregkoui/vsdvfo/commit/125f2965cb89411b2b6ad84a4d3d21f3f0eae303
+。
+蚌埠市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/topoffit/tikqge/commit/3b23bba2c6de511e8432663e0830b5aef2a16db8
+。
+保定市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新升级），点击查询：https://github.com/maghtyraff/avewga/commit/3d8658e7def6171956095415f42a45cfc243f8fa
+。
+宝鸡市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式上线），点击查询：https://github.com/baddeliker/fpxeoc/commit/13e24198e3d7f1e57dcb405c5d74af848dc71ce8
+。
+保山市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新公布），点击查询：https://github.com/aponcheuge/ohghlw/commit/00714d26471d1a01ab9e475fbb890707dcd54b37
+。
+包头市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式更新），点击查询：https://github.com/manuelpion/fveipy/commit/1742f23d62f130a26520a15fcc00ebe9e7581f44
+。
+北海市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网升级），点击查询：https://github.com/wuyingchu/hmicpv/commit/58535930263b4e1ed9ac3e96f58aa3dd65a1511f
+。
+本溪市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一升级），点击查询：https://github.com/gogiehigop/iwppqt/commit/d926781681b39c3b40b416fd736fe39066927518
+。
+滨州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一升级），点击查询：https://github.com/assusvad/gfrekw/commit/48b99bd93d2a832f064f53e4f269509017a08719
+。
+博罗市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网公布），点击查询：https://github.com/vistomotio/zqvobd/commit/496909df7061d5a7fe018502af242b8a4cc0586f
+。
+沧州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一推出），点击查询：https://github.com/tomhannon0/smoayu/commit/1ea6addad951094fc9a0a912152c6d87b729631d
+。
+长春市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一公布），点击查询：https://github.com/kideweemar/xsvvtt/commit/6be65641918a700cc7e6b2fe9824410f9c4c1af3
+。
+常德市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一上线），点击查询：https://github.com/markfarhan/obeviv/commit/dc3312d47a3fcac7b5cfe4571e3e52421b38089d
+。
+长葛市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新更新），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/7a3be932bd463ba1b28159dda30c606a406d439b
+。
+长沙市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一公布），点击查询：https://github.com/caussisak/ullhmw/commit/65fe5c7c16ff49d149ca56385b2726ef8cc63f0d
+。
+常熟市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式推出），点击查询：https://github.com/joenrakesh/zeajjp/commit/ea21abcdd8979f641710e3623fcd5ae957ad7cf5
+。
+长兴市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新升级），点击查询：https://github.com/linkinos/vacdxy/commit/227b96ecce9962cd7885bc533e7acda007410a94
+。
+长治市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新公布），点击查询：https://github.com/nadhkin/gpbzmz/commit/56f708cdf2e759f35e21cce846007b77a3aa48bc
+。
+常州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新升级），点击查询：https://github.com/jianchenbi/hqtcyx/commit/f4563c57acdf7cd2b3897c5c30033b8f044043df
+。
+巢湖市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新上线），点击查询：https://github.com/malikkwank/btuhsj/commit/80dd1a9393affa5ea291f7e252af1a43a64695b6
+。
+朝阳市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网推出），点击查询：https://github.com/gregkoui/vsdvfo/commit/26fc63fda82f1997d27504e2665fa88774f3b769
+。
+潮州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新公布），点击查询：https://github.com/topoffit/tikqge/commit/66d0c0afd60475e911f185a15e21256cab3a6bed
+。
+郴州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一上线），点击查询：https://github.com/maghtyraff/avewga/commit/898399fba8ef3ef39a3ff76d48e1fd1adfee1eb5
+。
+承德市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式更新），点击查询：https://github.com/baddeliker/fpxeoc/commit/7c689610908c9aec241b1fbbf537720301aef0ec
+。
+成都市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网更新），点击查询：https://github.com/aponcheuge/ohghlw/commit/d7965ca5cfd1468a13d9177af6b6b83b750acfa7
+。
+池州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一升级），点击查询：https://github.com/manuelpion/fveipy/commit/1b4ba0d660b44f4f4f0ca92127f6fb347157720c
+。
+崇左市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网上线），点击查询：https://github.com/wuyingchu/hmicpv/commit/785ac0105b651e975d0fc17ad550937915dc615f
+。
+滁州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新推出），点击查询：https://github.com/gogiehigop/iwppqt/commit/f8317800da8c4b52a1315ab573cc318a1370e9de
+。
+慈溪市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/assusvad/gfrekw/commit/5a7ffe509a0465116aea1958d6238d72b584e9c1
+。
+大丰市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一推出），点击查询：https://github.com/vistomotio/zqvobd/commit/c7a7bf784b4834d9c3da33d841e6d3d9a8d5c990
+。
+大理市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一升级），点击查询：https://github.com/tomhannon0/smoayu/commit/bc857ee7f51a2c2149c410db1459f92f5a710008
+。
+大连市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一公布），点击查询：https://github.com/kideweemar/xsvvtt/commit/3611d1f7ff3a6f742dabffa96d635316cb8e7102
+。
+大庆市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新升级），点击查询：https://github.com/markfarhan/obeviv/commit/2385d8fbb9bd11192301811754951599e2de983a
+。
+大同市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式推出），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/660bc3b5323bd9a2bae061b8a0473a7d3e973c08
+。
+达州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新推出），点击查询：https://github.com/caussisak/ullhmw/commit/bc1880e0885ec38659ca4a19baeb058b5289c511
+。
+丹东市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新升级），点击查询：https://github.com/joenrakesh/zeajjp/commit/8ea9019b4090e606e247310a5f6203e5b104ea72
+。
+德清市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网上线），点击查询：https://github.com/linkinos/vacdxy/commit/83b116c170907774b44aecdc0e6113c51d73e670
+。
+德阳市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新上线），点击查询：https://github.com/nadhkin/gpbzmz/commit/1adb6891e67fa23337b46d79ebce0e2010dce388
+。
+德州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/jianchenbi/hqtcyx/commit/f8311b39617a4ec5dd89b23f5524cfaf6ec70ad8
+。
+定州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新推出），点击查询：https://github.com/malikkwank/btuhsj/commit/4129ef179fb1f5d2fc828388de68ae97323b8b74
+。
+东海市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新上线），点击查询：https://github.com/gregkoui/vsdvfo/commit/2e81960bcbc6db65bcdab888ca3827a648b3f998
+。
+东台市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新升级），点击查询：https://github.com/topoffit/tikqge/commit/c6c183d50a6103a0a0897ca8da1d6f5c048d592f
+。
+东营市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网公布），点击查询：https://github.com/maghtyraff/avewga/commit/45763249fa68f43d5d23e65dcf7f85f098eb133c
+。
+东莞市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新更新），点击查询：https://github.com/baddeliker/fpxeoc/commit/6985fd94003099fae8556e465ec795e02622b67a
+。
+鄂尔市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式更新），点击查询：https://github.com/aponcheuge/ohghlw/commit/e5d10d0cdba1c18b891bc6e5a20df7275ce4c0f3
+。
+鄂州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一公布），点击查询：https://github.com/manuelpion/fveipy/commit/00aed81d1ad2e81415826c15aba66287bcc68109
+。
+恩施市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式升级），点击查询：https://github.com/wuyingchu/hmicpv/commit/5919ea33f14999a95e905b5949c891efe9ebf475
+。
+防城港市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网公布），点击查询：https://github.com/gogiehigop/iwppqt/commit/71f2f6d1ecc6dc10981e43a59efc87916eb85e17
+。
+佛山市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/assusvad/gfrekw/commit/b6b24ee41fd320c7d72f8bb31fdc8c8ac179a1ba
+。
+抚顺市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新公布），点击查询：https://github.com/vistomotio/zqvobd/commit/7d6b6871112e16dac5545ad5be102fc587d781e0
+。
+阜新市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网更新），点击查询：https://github.com/tomhannon0/smoayu/commit/afca38650267416ac1bccb823d4aef6039470dfe
+。
+阜阳市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一公布），点击查询：https://github.com/kideweemar/xsvvtt/commit/a0395eab803dcbfb4ecbc7cc64e1a901b31d3dc9
+。
+抚州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/markfarhan/obeviv/commit/7f9afc7a87cb7da5195f309b4d7bf3168d0ec717
+。
+福州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网上线），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/29dfd43baf69acbaba81b671d037ec1d4b20cb81
+。
+赣州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网上线），点击查询：https://github.com/caussisak/ullhmw/commit/c67aeacb1517b48ced22cca0139f0d67ffa842e7
+。
+馆陶市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一更新），点击查询：https://github.com/joenrakesh/zeajjp/commit/7020745fe870e01435b3bf8422e26081183e5c31
+。
+广安市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式推出），点击查询：https://github.com/linkinos/vacdxy/commit/3db2a7768793cac24d90ecf723d1ae6606fcbbad
+。
+广元市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一上线），点击查询：https://github.com/nadhkin/gpbzmz/commit/fbad901e687fb232b55e547128ea1cb1c7ca968c
+。
+广州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新推出），点击查询：https://github.com/jianchenbi/hqtcyx/commit/40742b562cac8c723840820ef54d29198752e76b
+。
+贵港市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新上线），点击查询：https://github.com/malikkwank/btuhsj/commit/2196dfc47c8a05adff0fc53d10972283f6e023b0
+。
+桂林市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式升级），点击查询：https://github.com/gregkoui/vsdvfo/commit/0c3503e3c7c5eac9af1115d8f1e496cf3cbe7792
+。
+贵阳市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一公布），点击查询：https://github.com/topoffit/tikqge/commit/a5cd8498e4fa360a7f5e969b9776c75f179e441c
+。
+哈尔滨市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网公布），点击查询：https://github.com/maghtyraff/avewga/commit/6a5b114b46a523be458127357eb4bb7189e9bc1b
+。
+海安市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新公布），点击查询：https://github.com/baddeliker/fpxeoc/commit/1833a6632112f71044e1826d686a4821cc5f4652
+。
+海口市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网上线），点击查询：https://github.com/aponcheuge/ohghlw/commit/f90def165bf4f5ca4bd483c08bab87e9e7d8e00e
+。
+海门市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一更新），点击查询：https://github.com/manuelpion/fveipy/commit/d11b0f9b355df57402daa6c9203005437d822e0a
+。
+海宁市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/wuyingchu/hmicpv/commit/1040ada4ae6a237c63e8daeb85b466ca292f9a7e
+。
+邯郸市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新更新），点击查询：https://github.com/gogiehigop/iwppqt/commit/797dbe2f2349d6cfa0d26915b0b59a3bdbbb53cb
+。
+汉中市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新升级），点击查询：https://github.com/assusvad/gfrekw/commit/4c96a04c9cb35d5e9ea8f8d36e4011f976b10215
+。
+杭州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/vistomotio/zqvobd/commit/b66370f94cdf3e60c638c0a65fccf28093154f43
+。
+鹤壁市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式更新），点击查询：https://github.com/tomhannon0/smoayu/commit/7478d177b7e9b814d4ab76e55400951dd44af283
+。
+河池市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一公布），点击查询：https://github.com/kideweemar/xsvvtt/commit/823b25b579300fcd77155bb7b3a71a280f2e716f
+。
+合肥市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网升级），点击查询：https://github.com/markfarhan/obeviv/commit/37b5096d95f2704fae52e48b2fc8e8dce282dab8
+。
+河源市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网公布），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/cc6e0cf2a5b2090718b1bef3a3b48b2e2cdfbca8
+。
+菏泽市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式升级），点击查询：https://github.com/caussisak/ullhmw/commit/df6d255519d63e8945ce41e11265bce8b477967d
+。
+贺州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一公布），点击查询：https://github.com/joenrakesh/zeajjp/commit/6620fb622b5847693edd3b7c0a4871ba961b5612
+。
+衡水市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网上线），点击查询：https://github.com/linkinos/vacdxy/commit/15554679ee94c049c7f4300a505e24aee0d3b83e
+。
+衡阳市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/nadhkin/gpbzmz/commit/e58ae3da0b53e51ed8161ac0551e09f62686f044
+。
+呼和浩特市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式更新），点击查询：https://github.com/jianchenbi/hqtcyx/commit/7a76652fe0203546f5f6dff46955d11e566de214
+。
+葫芦岛市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新推出），点击查询：https://github.com/malikkwank/btuhsj/commit/c883bcd4ce8af067f8f68956ad1d42f5700e1b39
+。
+湖州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新推出），点击查询：https://github.com/gregkoui/vsdvfo/commit/92f3082b2b42f57a9f88153903d31d29ad22f7e5
+。
+淮安市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/topoffit/tikqge/commit/5a0ba1d9fda2f35e84d0ca031c08385ec8fa8ca1
+。
+淮北市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式上线），点击查询：https://github.com/maghtyraff/avewga/commit/8edd3c3f3124bfa500ea9da3d0b33843aaadf83d
+。
+怀化市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式升级），点击查询：https://github.com/baddeliker/fpxeoc/commit/7246e00c9783fee4944c4af33c26d16f2fd188ab
+。
+淮南市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新更新），点击查询：https://github.com/aponcheuge/ohghlw/commit/0e4dfbb318b104ba6a21fa949d50c040462631e4
+。
+黄冈市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新更新），点击查询：https://github.com/manuelpion/fveipy/commit/52165fc6d37ee13a92595f7316a5ccaef89db682
+。
+黄山市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新推出），点击查询：https://github.com/wuyingchu/hmicpv/commit/8cb7d58d314c9de0b7388610c9703c6b8d9185f7
+。
+黄石市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一更新），点击查询：https://github.com/gogiehigop/iwppqt/commit/9abb292bf49c288e6e6abd2c14d5b1d33a445510
+。
+惠东市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式升级），点击查询：https://github.com/assusvad/gfrekw/commit/50d264a931f8a49ca587607949774d536f6cc707
+。
+惠州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一公布），点击查询：https://github.com/vistomotio/zqvobd/commit/93f6f7d2c2436ac40f035c0a5b89627a0132923d
+。
+霍邱市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一推出），点击查询：https://github.com/tomhannon0/smoayu/commit/06f49d7a98706ce5abff3f80ceb7a8341aeb4b5b
+。
+吉安市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网推出），点击查询：https://github.com/kideweemar/xsvvtt/commit/5a9e8967cbe89d2051677fcd79be459a3f26cf08
+。
+吉林市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新推出），点击查询：https://github.com/markfarhan/obeviv/commit/3a6fecca1160fcef2de804354321b937b9707931
+。
+济南市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网公布），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/5cbdedd08b0c90fe5798577a732fb6cf166a6378
+。
+济宁市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网上线），点击查询：https://github.com/caussisak/ullhmw/commit/8bce663db5db61fac24254ca865dfe6213953c93
+。
+济源市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式上线），点击查询：https://github.com/joenrakesh/zeajjp/commit/af3adf28c49d39faccd98075e3e7299e90eeaca0
+。
+佳木斯市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网公布），点击查询：https://github.com/linkinos/vacdxy/commit/d09f4314de56e87170cb6abcb8a526466c4dc630
+。
+嘉善市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/nadhkin/gpbzmz/commit/81be9f3bf9fde69f878700b73d6c93ebccd8b8ca
+。
+嘉兴市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网升级），点击查询：https://github.com/jianchenbi/hqtcyx/commit/cbc1286b925ae82733cf9165667c6a31d2e8cc9b
+。
+嘉峪关市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式上线），点击查询：https://github.com/malikkwank/btuhsj/commit/0580e4f32aab729a549b8f1871d3655a1323a5a5
+。
+建湖市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式更新），点击查询：https://github.com/gregkoui/vsdvfo/commit/e5ecb8e92ce046f8fe4e64e98445e276bec5ba5f
+。
+江门市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新推出），点击查询：https://github.com/topoffit/tikqge/commit/c3bd5866eeef8231200dd0447baac5083cfdc9ce
+。
+江阴市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新上线），点击查询：https://github.com/maghtyraff/avewga/commit/c1c6eb3fc4e500c0d87d60483d8dedc946d4b065
+。
+焦作市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网公布），点击查询：https://github.com/baddeliker/fpxeoc/commit/9e73bb22f8f3806900ed555cf410d72ed56c7d71
+。
+揭阳市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一上线），点击查询：https://github.com/aponcheuge/ohghlw/commit/914330ef6c96a80cb4cadd6b5a4b62de41da7a48
+。
+金华市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新公布），点击查询：https://github.com/manuelpion/fveipy/commit/1dd6b0850ca6055d0f9ba670f3e4a5bef6a6628d
+。
+晋江市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网上线），点击查询：https://github.com/wuyingchu/hmicpv/commit/dd69418e430524a6c7f0b24d6ac9ed030b363eca
+。
+锦州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新推出），点击查询：https://github.com/gogiehigop/iwppqt/commit/4518413e06ff4b382e3a09194740b59b99d78c8b
+。
+景德镇市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一更新），点击查询：https://github.com/assusvad/gfrekw/commit/6a65d9b2188272a509e5418dbfad0ce2df55aba9
+。
+靖江市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一升级），点击查询：https://github.com/vistomotio/zqvobd/commit/80f797cbfabeb000c591513bf7eef56997e70560
+。
+荆门市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一更新），点击查询：https://github.com/tomhannon0/smoayu/commit/e12e8deeaa80e89776853e332bfbd116ad74048e
+。
+荆州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网上线），点击查询：https://github.com/kideweemar/xsvvtt/commit/6f8e1a4c4055c8153d9ccdc632d680025e5d8b3a
+。
+九江市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式推出），点击查询：https://github.com/markfarhan/obeviv/commit/940aba5c1b107ace0b03e8ba6b68f5ce98051946
+。
+喀什市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网推出），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/4ae99825ad0b17a7668c934c0c7f086817f96730
+。
+开封市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一更新），点击查询：https://github.com/caussisak/ullhmw/commit/933b8128e21cc0cf8b914ac6ed1f28666edd5036
+。
+克拉玛市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新更新），点击查询：https://github.com/joenrakesh/zeajjp/commit/49c23f7fa992fc5c77d7792f39e743de2e9513ef
+。
+垦利市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新公布），点击查询：https://github.com/linkinos/vacdxy/commit/dee6f0a26cdde10bd65cce17a26f6397bdee1045
+。
+昆明市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新公布），点击查询：https://github.com/nadhkin/gpbzmz/commit/520a5c1c9268f88201d3547af695746df0b7c898
+。
+昆山市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一更新），点击查询：https://github.com/jianchenbi/hqtcyx/commit/173f6ced45a4accb1516c7276050a7e0ba019970
+。
+拉萨市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式公布），点击查询：https://github.com/malikkwank/btuhsj/commit/e68b3af3eaf1774622e9478f8cfcde12f024ce17
+。
+来宾市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网推出），点击查询：https://github.com/gregkoui/vsdvfo/commit/12a092916c1e5ef31462def28ceb6f3fff3f9e01
+。
+莱芜市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一推出），点击查询：https://github.com/topoffit/tikqge/commit/7157fe149d04b9f1773c988d719a368de76bf3c9
+。
+兰州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式推出），点击查询：https://github.com/maghtyraff/avewga/commit/69c14805fbb9fc02191d7e3a092746d45f696903
+。
+廊坊市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新推出），点击查询：https://github.com/baddeliker/fpxeoc/commit/3cf65a99528a807eb09c9864c594605f238fc246
+。
+乐清市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式推出），点击查询：https://github.com/aponcheuge/ohghlw/commit/1b12f324bf8434ffe687feb15b0f1b60f4866600
+。
+乐山市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新公布），点击查询：https://github.com/manuelpion/fveipy/commit/734a4def9609671badd8987af3f4039ff3b4550f
+。
+丽水市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网推出），点击查询：https://github.com/wuyingchu/hmicpv/commit/73566377ec8e37bc124741287f2f9c8bc02514c0
+。
+连云港市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新上线），点击查询：https://github.com/gogiehigop/iwppqt/commit/c18864a44375cc18b2a55e100531f8c94b7e8ab3
+。
+凉山市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新升级），点击查询：https://github.com/assusvad/gfrekw/commit/0d69969a66f742d01f368a902ccb839754b1e999
+。
+聊城市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一上线），点击查询：https://github.com/vistomotio/zqvobd/commit/84c62eacf450d6980fa774d2235efd5a99a2db45
+。
+辽阳市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新公布），点击查询：https://github.com/tomhannon0/smoayu/commit/e53ff613974157093f351c0b399a8ce9c91be92b
+。
+临汾市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/kideweemar/xsvvtt/commit/da591464bc54dd7a2803dfeeb378ee2ba3e0288f
+。
+临沂市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一公布），点击查询：https://github.com/markfarhan/obeviv/commit/b7844dc8272d44fbf3525e08bddbd6f8a62825d8
+。
+六安市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网推出），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/afff8c51e1cfb9a48a3d718d6c5fe88f7c498771
+。
+柳州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式更新），点击查询：https://github.com/caussisak/ullhmw/commit/737b122fa4ae25d6a437473c97600a24afd1f8ed
+。
+龙岩市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式公布），点击查询：https://github.com/joenrakesh/zeajjp/commit/6f5dc7e20d79282df95e203d6001a3e0517e45fc
+。
+娄底市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新推出），点击查询：https://github.com/linkinos/vacdxy/commit/7a86a00e9e5ccf3bd2af2273c57ffe8d3fc508b3
+。
+洛阳市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网升级），点击查询：https://github.com/nadhkin/gpbzmz/commit/52f7af25240c56e09461e3a13e92bb4d5f80b1a1
+。
+马鞍山市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式推出），点击查询：https://github.com/jianchenbi/hqtcyx/commit/51af2bfd4ce745af483c2692200a4ac74f2bf981
+。
+茂名市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网上线），点击查询：https://github.com/malikkwank/btuhsj/commit/4ab4a0960ef94d1d8460bd3e38290fcac6a66220
+。
+眉山市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新升级），点击查询：https://github.com/gregkoui/vsdvfo/commit/3b3718891e3b407327bc95a639ac21e235c55090
+。
+梅州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网升级），点击查询：https://github.com/topoffit/tikqge/commit/3575fa1f630634251b442d93cb4499b02caa73bb
+。
+绵阳市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新更新），点击查询：https://github.com/maghtyraff/avewga/commit/1ada51203ee319b900977d83cc394b48d8364984
+。
+明港市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新推出），点击查询：https://github.com/baddeliker/fpxeoc/commit/bde330ff16e51ab7bb0b7370f433cf36a1122049
+。
+牡丹江市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式推出），点击查询：https://github.com/aponcheuge/ohghlw/commit/21ac9ff78bfaaa61e6f9fc14476ec2dcffafcf11
+。
+南安市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一推出），点击查询：https://github.com/manuelpion/fveipy/commit/cb86e5ef6196130a355f52b0ab3ad2e386f36953
+。
+南昌市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/wuyingchu/hmicpv/commit/67910a04eb556566d0ca9657d58a65f469c5e686
+。
+南充市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一公布），点击查询：https://github.com/gogiehigop/iwppqt/commit/1a01e31fb553dddbc08344aef065a21b0cf22387
+。
+南京市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一升级），点击查询：https://github.com/assusvad/gfrekw/commit/4388805acafc0f3aa760394f5dcf9c75414125d3
+。
+南宁市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/vistomotio/zqvobd/commit/bbac6eb3e7133f1dac78d62bad9c8d1de54b5040
+。
+南平市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式上线），点击查询：https://github.com/tomhannon0/smoayu/commit/1a8ce24753bcf4b2bddc41fbf5139d9acd030423
+。
+南通市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式推出），点击查询：https://github.com/kideweemar/xsvvtt/commit/3bfd910a6071bc06104354184f11f946ac6bc49b
+。
+南阳市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网上线），点击查询：https://github.com/markfarhan/obeviv/commit/2c68c36672bd798c7af0440b063dbf539d48a0d4
+。
+内江市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新推出），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/5b94218775600d93658e048da9ed6ef596109bdc
+。
+宁波市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一升级），点击查询：https://github.com/caussisak/ullhmw/commit/3cd0b26f7b715308484cb71c4e3ddcb8edb3955b
+。
+宁德市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网升级），点击查询：https://github.com/joenrakesh/zeajjp/commit/b35c22fccbd9b97519624ba1a9d034fd1797807c
+。
+宁国市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式升级），点击查询：https://github.com/linkinos/vacdxy/commit/2a5a534e0edb3b6bd046c35be0c81bc28ef52382
+。
+盘锦市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式更新），点击查询：https://github.com/nadhkin/gpbzmz/commit/6e0870ad0f940377292006ead774b844b9b7d43e
+。
+攀枝花市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式更新），点击查询：https://github.com/jianchenbi/hqtcyx/commit/88b9a6f16869d367e57bf0c2039578326b1cc664
+。
+平顶山市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网推出），点击查询：https://github.com/malikkwank/btuhsj/commit/a502eae6e80415c4017869edc74f33a5d6410e4c
+。
+萍乡市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一上线），点击查询：https://github.com/gregkoui/vsdvfo/commit/fe95fd4fd1f3a16c3d387f3f1f477c680a8a519c
+。
+莆田市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新更新），点击查询：https://github.com/topoffit/tikqge/commit/8f41058aba4ae519c39c9739a5ff604d518b8444
+。
+启东市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网推出），点击查询：https://github.com/maghtyraff/avewga/commit/5c461b13265accb0ae4d2f3859dc8052992e29b9
+。
+齐齐哈尔市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/baddeliker/fpxeoc/commit/7c5f1659bc4adbe8e8a00097b6459f7e921f34ba
+。
+潜江市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新更新），点击查询：https://github.com/aponcheuge/ohghlw/commit/6317877c176a4515ad6c2642776113be2079a618
+。
+秦皇岛市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/manuelpion/fveipy/commit/39a1e7e88d06fcf7197ea4e125f9c88ca286b684
+。
+钦州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式更新），点击查询：https://github.com/wuyingchu/hmicpv/commit/37c7626ea50778cca73b55b2e1f3afd23272728d
+。
+青岛市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新公布），点击查询：https://github.com/gogiehigop/iwppqt/commit/b93bd329a7f15524d7d4619daa266a712af450e0
+。
+清远市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/assusvad/gfrekw/commit/55ec0959d8a9117e918ebeefaa969fc486e38d91
+。
+曲靖市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新更新），点击查询：https://github.com/vistomotio/zqvobd/commit/6429eec981423352cec8d61f995c73aea428dbdd
+。
+泉州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网更新），点击查询：https://github.com/tomhannon0/smoayu/commit/da2b58a1f2329a7f88cb42dc1d319d8e817114d6
+。
+日照市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/kideweemar/xsvvtt/commit/e5f3b4764eefbd857e98a2f7d3f1d47606b47f61
+。
+如东市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网推出），点击查询：https://github.com/markfarhan/obeviv/commit/c39294ea14278f1249c6d7318aa496a590004dde
+。
+如皋市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网公布），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/7d52acadbbeecb6e8c1d173ccd55866442b7aff9
+。
+瑞安市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一更新），点击查询：https://github.com/caussisak/ullhmw/commit/cd0c3680bc49e2d517454a1061ebfced3919c477
+。
+三门峡市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网更新），点击查询：https://github.com/joenrakesh/zeajjp/commit/2b9588d272f9d1b148bd9d884bda350207717380
+。
+三明市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新更新），点击查询：https://github.com/linkinos/vacdxy/commit/aa142daa1bf0b004c3fbf99e9e2cc1f6aa9bda2e
+。
+三亚市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/nadhkin/gpbzmz/commit/b6fcec6733f7b1342864e39f360d71c7a8b2be66
+。
+汕头市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网推出），点击查询：https://github.com/jianchenbi/hqtcyx/commit/26bd8a8b32b849b02fd7fd81537de4c659cb2888
+。
+汕尾市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新推出），点击查询：https://github.com/malikkwank/btuhsj/commit/15f5325c8a32d5fc5e8625e42da1e16674b724d7
+。
+上海市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网上线），点击查询：https://github.com/gregkoui/vsdvfo/commit/f1c683bdc163d280a0c9a6f7a3ee2d43ecd793b8
+。
+商丘市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网公布），点击查询：https://github.com/topoffit/tikqge/commit/31f2e280d3ab5158ad8676b376af906667938290
+。
+上饶市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新更新），点击查询：https://github.com/maghtyraff/avewga/commit/d8eb6b6ab0db3f5592961b600ad2c3a787fcef62
+。
+韶关市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网更新），点击查询：https://github.com/baddeliker/fpxeoc/commit/75ce7753a69d4825fe0d87178cf3103f827adc9a
+。
+绍兴市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网更新），点击查询：https://github.com/aponcheuge/ohghlw/commit/252cc1b2cd8dd27b20585411bb45f88c9a00fd86
+。
+邵阳市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新更新），点击查询：https://github.com/manuelpion/fveipy/commit/962d84edece42213a6475442341c0f80002bcc0c
+。
+神农架市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新公布），点击查询：https://github.com/wuyingchu/hmicpv/commit/f8ea19ebb3b19b9dc420509f0e899b62703a11fa
+。
+沈阳市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新公布），点击查询：https://github.com/gogiehigop/iwppqt/commit/a98b6914287ddaa579e8b464d8864db74802cafa
+。
+深圳市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新公布），点击查询：https://github.com/assusvad/gfrekw/commit/3a08c75754d7a5da0e16710334dba13f8506ac6d
+。
+石河子市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新公布），点击查询：https://github.com/vistomotio/zqvobd/commit/63cfe4c7a1dd5c22b03483f9b7f115522f3aaf38
+。
+石家庄市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一上线），点击查询：https://github.com/tomhannon0/smoayu/commit/d6be901b19338dd355a822c46ee6e1b12c86588b
+。
+石狮市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/kideweemar/xsvvtt/commit/46a6e8711171451af222943bd8a9aeb8c6449ead
+。
+十堰市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/markfarhan/obeviv/commit/fc1ef674d54584c2b45a4d090580962f50d91c48
+。
+寿光市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式更新），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/ab6b23ed4b3e31898412df589a96e5b352b719ac
+。
+顺德市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新公布），点击查询：https://github.com/caussisak/ullhmw/commit/5608021ac1a848684c95cea354e73fa4d9fd4bbf
+。
+四平市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网更新），点击查询：https://github.com/joenrakesh/zeajjp/commit/b79a1f4393ee51de3ffa4f3c3a93dbf60e170be1
+。
+宿迁市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网更新），点击查询：https://github.com/linkinos/vacdxy/commit/7b62a40c117617ee3c194b33a2d7074d866d34bf
+。
+苏州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一上线），点击查询：https://github.com/nadhkin/gpbzmz/commit/0a60a2b3a8e09ac1ae1bed4c430281b630f860db
+。
+宿州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新升级），点击查询：https://github.com/jianchenbi/hqtcyx/commit/708bd7b7717215899ccccf091b26b18560508d6f
+。
+遂宁市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新公布），点击查询：https://github.com/malikkwank/btuhsj/commit/8467ccacb5f06511699336e8978cf7df47032844
+。
+随州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一更新），点击查询：https://github.com/gregkoui/vsdvfo/commit/5e096ba343e57a1dfd690fdc6e8506dfb659fa13
+。
+泰安市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网更新），点击查询：https://github.com/topoffit/tikqge/commit/fdc74a28f92db29490c849d40af802e7c278a072
+。
+台山市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式上线），点击查询：https://github.com/maghtyraff/avewga/commit/120b01b7b1d2560c91b4de1a797e20c4860a3fa8
+。
+泰兴市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新推出），点击查询：https://github.com/baddeliker/fpxeoc/commit/9d939a22c408b080b1ae983ac9b1a3b33354fa91
+。
+太原市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新更新），点击查询：https://github.com/aponcheuge/ohghlw/commit/0abf16778558f0a8441ab936690f5168b43a85c7
+。
+泰州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网升级），点击查询：https://github.com/manuelpion/fveipy/commit/73fa5a8914013c2924f61a0b55103dc62bd5cb43
+。
+唐山市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式上线），点击查询：https://github.com/wuyingchu/hmicpv/commit/e214451ce7942d442f26ea39ab483417d51517a6
+。
+天长市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一更新），点击查询：https://github.com/gogiehigop/iwppqt/commit/4f3bd3b07f8e44c38962f70f7365f0c03f43be85
+。
+天津市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/assusvad/gfrekw/commit/d966cd5b5e45524c214130667759b588c4bf970d
+。
+天门市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式升级），点击查询：https://github.com/vistomotio/zqvobd/commit/5c0611dc806ef91244da04a012a6a18682dba7f8
+。
+天水市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一升级），点击查询：https://github.com/tomhannon0/smoayu/commit/c3504acfe3d14d81df356ac23d755dfe43ec2b18
+。
+铁岭市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新公布），点击查询：https://github.com/kideweemar/xsvvtt/commit/d7168c85b25191472a5cb33e5c1c1dd12c2623b1
+。
+桐城市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新升级），点击查询：https://github.com/markfarhan/obeviv/commit/13bdc71c267176a994b666a8ffba094283d0f09a
+。
+铜川市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新上线），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/e7d5dd381fc21efde31f1a13f11da292e479864e
+。
+铜陵市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新公布），点击查询：https://github.com/caussisak/ullhmw/commit/c6c058d46063a42b6d3142f814e3301691ff142c
+。
+桐乡市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一推出），点击查询：https://github.com/joenrakesh/zeajjp/commit/366801bdaf6dd7cb39b580f5c085436863da2cfc
+。
+瓦房店市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新上线），点击查询：https://github.com/linkinos/vacdxy/commit/72f19ce8e1073d954a98297975ccbe5bf14bff1c
+。
+潍坊市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/nadhkin/gpbzmz/commit/7ba6ba8d7db9cf8ed89ce2be9b9e4406fbc70d0c
+。
+威海市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网公布），点击查询：https://github.com/jianchenbi/hqtcyx/commit/8246aa3773ea1162fa332e83fe546d2259d3158b
+。
+温岭市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新上线），点击查询：https://github.com/malikkwank/btuhsj/commit/2a788164f13c6f0cc35e90e3be4ed2b8c805f343
+。
+温州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新公布），点击查询：https://github.com/gregkoui/vsdvfo/commit/49b39bef49edace88c9e0f96226b79f2b1262a34
+。
+武汉市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一更新），点击查询：https://github.com/topoffit/tikqge/commit/9282bee57d08167a6b21a14798bc7140896cf2a2
+。
+芜湖市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新上线），点击查询：https://github.com/maghtyraff/avewga/commit/efaa6a0411ab56ae25d555b69d297a90aed01314
+。
+乌鲁木齐市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网更新），点击查询：https://github.com/baddeliker/fpxeoc/commit/3c06797f77870e30616077c66c8322577b707ffc
+。
+无锡市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新更新），点击查询：https://github.com/aponcheuge/ohghlw/commit/2e482a4b27d25a6e9a6dc06c5fefc807b476455d
+。
+武夷山市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新公布），点击查询：https://github.com/manuelpion/fveipy/commit/07a1b578629ab6c0f72a55acc8eb2d170e1e8a14
+。
+梧州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/wuyingchu/hmicpv/commit/60494cad2862f37b5adad47e2c8372e31dd6daa5
+。
+西安市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新公布），点击查询：https://github.com/gogiehigop/iwppqt/commit/a976e0d7e9a910bf8e50042c90c251d970ca00b7
+。
+西宁市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一公布），点击查询：https://github.com/assusvad/gfrekw/commit/8935dc7d1532ba84d674d4c6bdacf76da0ff5548
+。
+厦门市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一更新），点击查询：https://github.com/vistomotio/zqvobd/commit/e7cf9fb99c12eaa50aa991bbf0be148aff6c4bdb
+。
+咸宁市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新公布），点击查询：https://github.com/tomhannon0/smoayu/commit/e90c2f65ebe3d118074310f2c3241eb167b7a4be
+。
+仙桃市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网更新），点击查询：https://github.com/kideweemar/xsvvtt/commit/c361101571734bb8e224fc13dc8675a2b8a738eb
+。
+咸阳市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/markfarhan/obeviv/commit/92fb421a4407514c38a3873d7a9bf953905806a3
+。
+襄樊市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网上线），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/197f49607bcedb89ed26f3dc0dfbb6fbda76e380
+。
+象山市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一上线），点击查询：https://github.com/caussisak/ullhmw/commit/057f1ba8e40a237e3d0b54a482cc900302a8df64
+。
+湘潭市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网上线），点击查询：https://github.com/joenrakesh/zeajjp/commit/78c74343b891c79ed9f22a7e52aedd02e51aa74b
+。
+湘西市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网更新），点击查询：https://github.com/linkinos/vacdxy/commit/9ebb1a8fabc4471ddf49a0d6a227ec608c267716
+。
+襄阳市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/nadhkin/gpbzmz/commit/94db23123a40ba40c3ce8f03af7217dbe5092206
+。
+孝感市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网更新），点击查询：https://github.com/jianchenbi/hqtcyx/commit/a4ef1d6f1d19d912ceab3ed5a51deb6624f35f31
+。
+萧山市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新更新），点击查询：https://github.com/malikkwank/btuhsj/commit/b12d463732323202e1b8ce45656aa754ab9b6eb1
+。
+新乡市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新公布），点击查询：https://github.com/gregkoui/vsdvfo/commit/5aa4eb188af04b6f7a890c0f66aaf53193a95e3c
+。
+信阳市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新更新），点击查询：https://github.com/topoffit/tikqge/commit/e27efbd68a932c817e9d5ded191246d66747b445
+。
+新沂市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网更新），点击查询：https://github.com/maghtyraff/avewga/commit/917e4c1af3f57039dbe176f170db8955fb2dbeb2
+。
+新余市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新更新），点击查询：https://github.com/baddeliker/fpxeoc/commit/c4b18baeab3ccce3535f02dc2ed2a17c5fa52448
+。
+兴化市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新升级），点击查询：https://github.com/aponcheuge/ohghlw/commit/9568b34500997c9f145f9b588ffbc14cff2b4f15
+。
+邢台市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/manuelpion/fveipy/commit/be55f705444673c62e9541f43f0aba8e12eec39c
+。
+许昌市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网上线），点击查询：https://github.com/wuyingchu/hmicpv/commit/3540eff4653323d83af2986d91d89642e99dfd84
+。
+徐州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网推出），点击查询：https://github.com/gogiehigop/iwppqt/commit/b517a126aae9a4ae9060122665f4ad4348ec8c7b
+。
+宣城市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新推出），点击查询：https://github.com/assusvad/gfrekw/commit/87081815a02aba5fff0396ee412dff63f6217568
+。
+雅安市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式升级），点击查询：https://github.com/vistomotio/zqvobd/commit/91126feed7f8b04ada7b40536fffc9513d633428
+。
+延安市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新更新），点击查询：https://github.com/tomhannon0/smoayu/commit/250de8c5ed1312cf66fec15ce28e7dcd38415d57
+。
+盐城市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式上线），点击查询：https://github.com/kideweemar/xsvvtt/commit/c8a480ccb9929d9a87aeac69f7c96a0b4ac3e163
+。
+烟台市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新更新），点击查询：https://github.com/markfarhan/obeviv/commit/f35cbcd6a6e775589ad1eda87e9ee35287604fc6
+。
+阳春市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网上线），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/867ab855abb61b2913026092eae3d445d919d443
+。
+阳江市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一公布），点击查询：https://github.com/caussisak/ullhmw/commit/7a95a99bba60f9fd621c7f7aa2fdb3a9d53e22d5
+。
+阳泉市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新公布），点击查询：https://github.com/joenrakesh/zeajjp/commit/783d8837e8e5d9547b6d07c69a2ec840e0c8d74e
+。
+扬中市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一公布），点击查询：https://github.com/linkinos/vacdxy/commit/a452854fc9dfec48bc13157fbb4c1f38e335451a
+。
+扬州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新上线），点击查询：https://github.com/nadhkin/gpbzmz/commit/d35777a94d86edd936e4060f2ddf232d6ed63d05
+。
+宜宾市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新推出），点击查询：https://github.com/jianchenbi/hqtcyx/commit/e2e7fb28499ed0f26788229849ac5709d19994c4
+。
+宜昌市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/malikkwank/btuhsj/commit/25de5f0d680a2f17c60686db2057e898899ba984
+。
+宜春市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新上线），点击查询：https://github.com/gregkoui/vsdvfo/commit/5378834790d14a3bb19d3e83863969671ee7d50e
+。
+宜都市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新更新），点击查询：https://github.com/topoffit/tikqge/commit/703c36af37c24ba972c378486562270b65578f03
+。
+义乌市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式更新），点击查询：https://github.com/maghtyraff/avewga/commit/cec71ea2372ab5f4496337e817113b3df46c311d
+。
+宜兴市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新升级），点击查询：https://github.com/baddeliker/fpxeoc/commit/5f441f1350a8a9aa2bc4030381ac5be77fa9493d
+。
+益阳市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新升级），点击查询：https://github.com/aponcheuge/ohghlw/commit/5f075a6740be86d1433a000d7605e2daec0b7c87
+。
+银川市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网公布），点击查询：https://github.com/manuelpion/fveipy/commit/f2f05f132ccf5af6bef5760489b3d29223178db2
+。
+营口市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新推出），点击查询：https://github.com/wuyingchu/hmicpv/commit/f2f6b45ef9615120736958155d7730f562bf5113
+。
+鹰潭市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新上线），点击查询：https://github.com/gogiehigop/iwppqt/commit/be0d16fe252221fe3e454c31a68dd54ea1d6bd1f
+。
+永新市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一更新），点击查询：https://github.com/assusvad/gfrekw/commit/9f46502145194cc9707bbdb7357aebb82ed256be
+。
+永州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网更新），点击查询：https://github.com/vistomotio/zqvobd/commit/be3ee227fc0db1badc585274ebbfa4c4b50c4387
+。
+榆林市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新公布），点击查询：https://github.com/tomhannon0/smoayu/commit/329dbdeb20898e2eb2ef87749ea4c2f4edae1f3e
+。
+玉林市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一更新），点击查询：https://github.com/kideweemar/xsvvtt/commit/175ac7276e0a4951bee3ecece9335e44cc1cba2e
+。
+玉溪市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新公布），点击查询：https://github.com/markfarhan/obeviv/commit/2615f91c885b2348fdf18ecaf65b8091ae0d2ca3
+。
+余姚市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新公布），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/aae68e34ef234e5080723dab66bb200b815c8952
+。
+禹州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新上线），点击查询：https://github.com/caussisak/ullhmw/commit/e2057fd84266169417ea7ccba54edfeeae22273a
+。
+岳阳市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新更新），点击查询：https://github.com/joenrakesh/zeajjp/commit/88a8a90eb461fb349066bb2653d91087ab5357b8
+。
+云浮市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网升级），点击查询：https://github.com/linkinos/vacdxy/commit/52a1e3a8d7982d3c9ccf6f019caf3c0a3d355d97
+。
+枣庄市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新公布），点击查询：https://github.com/nadhkin/gpbzmz/commit/5fc9b9dc0033c920e39550b657acc379805c80e6
+。
+湛江市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新推出），点击查询：https://github.com/jianchenbi/hqtcyx/commit/84170f345cd38c808905288d250c1fdd7ade3945
+。
+张家界市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新推出），点击查询：https://github.com/malikkwank/btuhsj/commit/a27e67792fdbcdeda15ae45890bca6feaef95d3a
+。
+张家口市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一上线），点击查询：https://github.com/gregkoui/vsdvfo/commit/7c054d2cbcf7e4893e9274e9b7e61be94e84785d
+。
+章丘市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式上线），点击查询：https://github.com/topoffit/tikqge/commit/f4d975b73473bd01bb48836961ba414e84afdca0
+。
+漳州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新推出），点击查询：https://github.com/maghtyraff/avewga/commit/882dcf034cdefa8c4168e6bf33c12ffa4996e1fc
+。
+肇庆市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一上线），点击查询：https://github.com/baddeliker/fpxeoc/commit/3a09eefe57727cff5e9f5dfd9fa5f285cf328197
+。
+镇江市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式更新），点击查询：https://github.com/aponcheuge/ohghlw/commit/32fb5cd8c824c2da29755c7f30b54c2d7becef0f
+。
+郑州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新推出），点击查询：https://github.com/manuelpion/fveipy/commit/264d6ec6d5cb55882fabf582ece3f27507e30486
+。
+重庆市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式公布），点击查询：https://github.com/wuyingchu/hmicpv/commit/9ebe424c3cf173b550d359bc93a9d31c899dde6f
+。
+中山市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式上线），点击查询：https://github.com/gogiehigop/iwppqt/commit/24f7d5ffaac07a3b955403e1cf43714b102bd029
+。
+周口市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新公布），点击查询：https://github.com/assusvad/gfrekw/commit/15a9e28e129d44d5d7f40a6ecfe7be59e0f6bbd2
+。
+舟山市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新升级），点击查询：https://github.com/vistomotio/zqvobd/commit/072343706043b8fc6e9b50a6a2775c4fa48ce0de
+。
+诸城市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式推出），点击查询：https://github.com/tomhannon0/smoayu/commit/63306f3c0fb990335d4fb601db7bd5ae049a3587
+。
+珠海市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一升级），点击查询：https://github.com/kideweemar/xsvvtt/commit/819e28a655764489045f35e03080ec23114cee54
+。
+株洲市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一上线），点击查询：https://github.com/markfarhan/obeviv/commit/4c11abf65f6706e149da41be54e3fc48883aef4e
+。
+诸暨市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新公布），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/2a67f43cd20a1ba335c25a2240cb9cc256b644c8
+。
+庄河市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新升级），点击查询：https://github.com/caussisak/ullhmw/commit/43dc744e29fb2a00e0e905c92944c004fb3148f3
+。
+自贡市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新上线），点击查询：https://github.com/joenrakesh/zeajjp/commit/f82a5a301da92e8d32cc08526437260ff9679c37
+。
+资阳市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一上线），点击查询：https://github.com/linkinos/vacdxy/commit/cef79c4ec5314462f5889010834dd850d475f8c2
+。
+遵义市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网公布），点击查询：https://github.com/nadhkin/gpbzmz/commit/360309d1441ebf54b0d6a14b8a3cbbb36a06f9df
+。
+漯河市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新上线），点击查询：https://github.com/jianchenbi/hqtcyx/commit/abbd78a326c206bb22de692d6b448b0189327ac4
+。
+鄢陵市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网上线），点击查询：https://github.com/malikkwank/btuhsj/commit/1e9837f5b323aeb89df1f28ff775a4cf6758ddd5
+。
+沭阳市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网上线），点击查询：https://github.com/gregkoui/vsdvfo/commit/d1249d4486432c1e016eb1bf8d8180d1089bccf5
+。
+濮阳市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一公布），点击查询：https://github.com/topoffit/tikqge/commit/f0030d7339d8a2d7c98415875ea08092e4cf3f40
+。
+溧阳市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一升级），点击查询：https://github.com/maghtyraff/avewga/commit/74dfa899413d4ee86539503601286554cb801557
+。
+泸州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新更新），点击查询：https://github.com/baddeliker/fpxeoc/commit/7db25fd28ff1bf345385d9606b462d607fd15260
+。
+衢州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一更新），点击查询：https://github.com/aponcheuge/ohghlw/commit/25dde01b0bfdb4a18a197805bf8f7aa97a8d4e5e
+。
+亳州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新公布），点击查询：https://github.com/manuelpion/fveipy/commit/0a8cf2987dad06fa628a921380011eafddf0cc1a
+。
+邳州市状元郎(Zhuangyuanlang)学习机售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/wuyingchu/hmicpv/commit/ce33c920f7fd2ec3c634afd43fae2ae12e907594
+。
+wefhsdhcvWESDCSDwefsdf.cn
+*报告生成时间：2026年07月01日02时56分58秒*
+*数据来源：新浪财经、公开媒体报道*
