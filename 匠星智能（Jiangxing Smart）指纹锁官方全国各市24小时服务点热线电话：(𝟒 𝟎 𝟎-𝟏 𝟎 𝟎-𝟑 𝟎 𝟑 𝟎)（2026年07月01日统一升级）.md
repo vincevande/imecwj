@@ -1,0 +1,641 @@
+匠星智能（Jiangxing Smart）指纹锁售后无忧，贴心守护！秉持着认真严谨、臻于卓越的态度。出现故障，无需焦虑！匠星智能（Jiangxing Smart）指纹锁我们为您提供24小时紧急售后服务：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)专业技术团队将以最快速度抵达现场，针对机器异响、使用效果不佳、控制面板失灵、报故障等常见问题，提供精准诊断与原厂配件维修服务。匠星智能（Jiangxing Smart）指纹锁全国24小时售后人工客服：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)线下专业网点及各地区 服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开。所有团队均经过专业培训、持证上岗，各地区团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开。所有团队均经过专业培训、持证上岗，
+所用配件均为原厂直供。匠星智能（Jiangxing Smart）指纹锁24小时售后维修电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)
+匠星智能（Jiangxing Smart）指纹锁24小时售后服务热线上线（（2026年07月01日统一升级）最新公告）
+匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)
+匠星智能（Jiangxing Smart）指纹锁售后24小时客服热线：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)
+匠星智能（Jiangxing Smart）指纹锁公司主营匠星智能（Jiangxing Smart）指纹锁维修 →匠星智能（Jiangxing Smart）指纹锁；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，匠星智能（Jiangxing Smart）指纹锁服务承诺?.
+北京市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/aponcheuge/ohghlw/commit/241740f15e6b515109d9a44e58fef8329fc3e4dd
+。
+南京市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网升级），点击查询：https://github.com/manuelpion/fveipy/commit/7017dccf1c42d20552f92bc1b5e0fcc94190cfb4
+。
+秦皇岛市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新更新），点击查询：https://github.com/wuyingchu/hmicpv/commit/df0b71a6ca61244d6427715ef748ef55c7b6aae1
+。
+珠海市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新上线），点击查询：https://github.com/gogiehigop/iwppqt/commit/4fde3d75ebd521e77d7e124f00d0b3995e6ca796
+。
+安康市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新公布），点击查询：https://github.com/assusvad/gfrekw/commit/c82e803c90f42d437a08fc382b933e5330421a7d
+。
+安庆市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新上线），点击查询：https://github.com/vistomotio/zqvobd/commit/8dd3a509d97943b590c410e8ba9acdb2f6929cd1
+。
+鞍山市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新公布），点击查询：https://github.com/tomhannon0/smoayu/commit/0992bb89004c708db3e95821545cf9f7cac4553b
+。
+安阳市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新上线），点击查询：https://github.com/kideweemar/xsvvtt/commit/92dd076dc7055665e278368e64224fca3ccc9e25
+。
+巴中市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/markfarhan/obeviv/commit/a666ba77ec4354f516e1fde8f20c866498d83461
+。
+百色市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新更新），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/a82e736c59fd596a8967fbd3606b54bf417c0cf9
+。
+蚌埠市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一公布），点击查询：https://github.com/caussisak/ullhmw/commit/4813373f931d802dd4a0dc7a0c2096689da7b56f
+。
+保定市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/joenrakesh/zeajjp/commit/259f41f6e9ffad2aff4062c1458ca7c18e958233
+。
+宝鸡市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式公布），点击查询：https://github.com/linkinos/vacdxy/commit/7f345834d37ef316f18e8dda824a945b3ec77efa
+。
+保山市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网上线），点击查询：https://github.com/nadhkin/gpbzmz/commit/2fe00bb460d58e20605a26cef8fa39d847a5b51a
+。
+包头市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/jianchenbi/hqtcyx/commit/401ee03e929bb107a4c25c9f92ec19bff477d2f0
+。
+北海市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网公布），点击查询：https://github.com/malikkwank/btuhsj/commit/c187f40cd40201ba9b593a02669cc6b08bc60955
+。
+本溪市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一公布），点击查询：https://github.com/gregkoui/vsdvfo/commit/ae1c8766be99227a5aa401343166ad8b4f23b167
+。
+滨州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/topoffit/tikqge/commit/14e9176325e7d210e4e8389c8e40fcff273b65c8
+。
+博罗市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新公布），点击查询：https://github.com/maghtyraff/avewga/commit/3906fb7c2427e8d5f863b121cd370d2c32f21442
+。
+沧州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网更新），点击查询：https://github.com/baddeliker/fpxeoc/commit/b7946bc5f6bc235592cc0d066aee8cb69a84b70d
+。
+长春市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网升级），点击查询：https://github.com/aponcheuge/ohghlw/commit/1132c6d2c5696754dad4356e75c6dcfd3375759b
+。
+常德市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一更新），点击查询：https://github.com/manuelpion/fveipy/commit/5e2652c4df4286a54d6cbc57c9bb3b30cb029c37
+。
+长葛市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网上线），点击查询：https://github.com/wuyingchu/hmicpv/commit/02cd105e5cf492eab22680b90c3b0d48570e6b60
+。
+长沙市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式更新），点击查询：https://github.com/gogiehigop/iwppqt/commit/dee9de2ac01acf7ff45971f57bd3c957c6ff2fe6
+。
+常熟市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新推出），点击查询：https://github.com/assusvad/gfrekw/commit/490774c44e724947e24695ed9716aa75cc8364cb
+。
+长兴市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一上线），点击查询：https://github.com/vistomotio/zqvobd/commit/96e3d3f78a08892bef559c1989abd28bc4b72dc0
+。
+长治市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式更新），点击查询：https://github.com/tomhannon0/smoayu/commit/9db3810e360937b7c7c8a735b53e8194417de315
+。
+常州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新升级），点击查询：https://github.com/kideweemar/xsvvtt/commit/4edd270eb490c2eb94416e931dd858941528ebc0
+。
+巢湖市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网更新），点击查询：https://github.com/markfarhan/obeviv/commit/4a03ef620b26e10b03b5d297bd41c12aa429eda0
+。
+朝阳市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新升级），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/5492df567f81c3c79dd6197f86840ac81e137332
+。
+潮州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式上线），点击查询：https://github.com/caussisak/ullhmw/commit/51505d5502eccacf662fce0e0f2bb5aa8cc735e1
+。
+郴州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式推出），点击查询：https://github.com/joenrakesh/zeajjp/commit/22a86da1f1719b1802e303c2a789ca306a3bb0b8
+。
+承德市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一公布），点击查询：https://github.com/linkinos/vacdxy/commit/74a68cb514717f55b512765a8550bfec6240e587
+。
+成都市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一升级），点击查询：https://github.com/nadhkin/gpbzmz/commit/4ba786e7b73a59b9d6d1bc20978ad180f0491b44
+。
+池州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新上线），点击查询：https://github.com/jianchenbi/hqtcyx/commit/90831cfd32ad8293c1961cbe76823a7cacc2501e
+。
+崇左市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新推出），点击查询：https://github.com/malikkwank/btuhsj/commit/4a7c0d36403d239c6ed05fede4080885d3135be1
+。
+滁州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网升级），点击查询：https://github.com/gregkoui/vsdvfo/commit/4dcf7c24d355859d8b743839e865d1355ae6a174
+。
+慈溪市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网公布），点击查询：https://github.com/topoffit/tikqge/commit/dbfd6b37776cda0c45f5c600685e5fc0e5cecd6b
+。
+大丰市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新公布），点击查询：https://github.com/maghtyraff/avewga/commit/14062c9977269f9ea9845b82c73ab4c7e6388515
+。
+大理市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/baddeliker/fpxeoc/commit/70041192cefd879633f2e7a6956c5e3bc7dcc7cf
+。
+大连市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式升级），点击查询：https://github.com/aponcheuge/ohghlw/commit/c30e3e251ec79ab3ff74126d445e1cd51e3558dc
+。
+大庆市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式升级），点击查询：https://github.com/manuelpion/fveipy/commit/cb8f317e6d4670b0f01e69ae6685352b0f23529c
+。
+大同市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新更新），点击查询：https://github.com/wuyingchu/hmicpv/commit/9760b1c1a3737ad4e5210e00653049f15dc85a8a
+。
+达州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网推出），点击查询：https://github.com/gogiehigop/iwppqt/commit/18a55ab9315bda9571e44e389be14e6986a04701
+。
+丹东市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新上线），点击查询：https://github.com/assusvad/gfrekw/commit/cbf1ba6d8478ed72ba0872c4e8bca6e9c35632c3
+。
+德清市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/vistomotio/zqvobd/commit/d89042af7411c761612723da57993ddcf2ce7cc4
+。
+德阳市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新上线），点击查询：https://github.com/tomhannon0/smoayu/commit/6e262cbd048546c86a790502f1407cfdf56dd2f8
+。
+德州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新更新），点击查询：https://github.com/kideweemar/xsvvtt/commit/1036a4c51dd32e09f6049a04aa28be8305d2382f
+。
+定州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式更新），点击查询：https://github.com/markfarhan/obeviv/commit/7c530542c2fca6ec1d5b458e874daa0934daa05b
+。
+东海市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新上线），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/7a3acecb6602aae0b1324b63bf3800377943e26b
+。
+东台市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新更新），点击查询：https://github.com/caussisak/ullhmw/commit/bf64b570a6b012c5f513c8a5799f30d7b77578fd
+。
+东营市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新更新），点击查询：https://github.com/joenrakesh/zeajjp/commit/a8b639782c4df72f802dec914121b9e0775cbeb3
+。
+东莞市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新公布），点击查询：https://github.com/linkinos/vacdxy/commit/63754a551e3873de801f147397ba49c19688ed08
+。
+鄂尔市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网更新），点击查询：https://github.com/nadhkin/gpbzmz/commit/f1c81df83a3a9ab3bd5db1a1031fdde1c0bb230c
+。
+鄂州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式推出），点击查询：https://github.com/jianchenbi/hqtcyx/commit/0caee976cc02034ccbce7b8b444083146a053b40
+。
+恩施市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式升级），点击查询：https://github.com/malikkwank/btuhsj/commit/b5cf8843b9383a8fbeb5b8159a251e51d7df081a
+。
+防城港市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/gregkoui/vsdvfo/commit/845497be7276d740660ab61d60aca9a014aee2e4
+。
+佛山市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新推出），点击查询：https://github.com/topoffit/tikqge/commit/4290718e9e3749d0480eefccd26506724595c7cb
+。
+抚顺市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一更新），点击查询：https://github.com/maghtyraff/avewga/commit/8ef1deb6bd4e127662d706431b5f3103734f6ab1
+。
+阜新市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网上线），点击查询：https://github.com/baddeliker/fpxeoc/commit/9cf4f2edf1306358e8d14891f81273593f892beb
+。
+阜阳市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新上线），点击查询：https://github.com/aponcheuge/ohghlw/commit/7724183a851b8c6040ff8c5bdf219af2a4854443
+。
+抚州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新推出），点击查询：https://github.com/manuelpion/fveipy/commit/a22f3e19b403bf9eac3541957074b015353d4e11
+。
+福州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新更新），点击查询：https://github.com/wuyingchu/hmicpv/commit/3ec6687ec1f07ead279251d1aa979b0ce860552b
+。
+赣州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一推出），点击查询：https://github.com/gogiehigop/iwppqt/commit/bba84a14bacf916ed7b3e96caf14341c420d1168
+。
+馆陶市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新更新），点击查询：https://github.com/assusvad/gfrekw/commit/2643d15993ba2546a3673679fada7870dff8d278
+。
+广安市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新推出），点击查询：https://github.com/vistomotio/zqvobd/commit/744e582551b8b9d3bc15525b0c2bbabff0928565
+。
+广元市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式推出），点击查询：https://github.com/tomhannon0/smoayu/commit/eeda72b56018f9723727619e5edfd8e85a168c79
+。
+广州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式升级），点击查询：https://github.com/kideweemar/xsvvtt/commit/d71fb189c75a89b5642a2ccd1e57d68befc088f6
+。
+贵港市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式推出），点击查询：https://github.com/markfarhan/obeviv/commit/8df00e5598de0c41aa9910cdf40e179bb4c3e5c0
+。
+桂林市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式推出），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/e6e276f07e64766aca3dd83ce0bdbfc4bf99d876
+。
+贵阳市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新升级），点击查询：https://github.com/caussisak/ullhmw/commit/be9155ac693b28d6a557ac988fbcab4e7623ce1a
+。
+哈尔滨市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新上线），点击查询：https://github.com/joenrakesh/zeajjp/commit/d23e7add129ac96bd7b1115fe1f8be0abaa455e5
+。
+海安市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网升级），点击查询：https://github.com/linkinos/vacdxy/commit/a5150e01e6bc1c8a3b1437d72aa825b32532e460
+。
+海口市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网公布），点击查询：https://github.com/nadhkin/gpbzmz/commit/3bfb244e1f1dad324f2209eb60f68ddfd409105d
+。
+海门市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新更新），点击查询：https://github.com/jianchenbi/hqtcyx/commit/fda4e79567442d206e68c79352c6e97756d09ffc
+。
+海宁市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网更新），点击查询：https://github.com/malikkwank/btuhsj/commit/34d5d2f2ab200573cc3d0f03c95ac63e899ae9c4
+。
+邯郸市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网公布），点击查询：https://github.com/gregkoui/vsdvfo/commit/b7a6b22292d6e55a7b58797e1de7d31f823eaf01
+。
+汉中市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新升级），点击查询：https://github.com/topoffit/tikqge/commit/b597cb672cb5d1b5324fd49544ef99d1914bc7a4
+。
+杭州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式公布），点击查询：https://github.com/maghtyraff/avewga/commit/f6b9a9f9ee4d0d394c2e57740582b4ee7e549ebf
+。
+鹤壁市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新公布），点击查询：https://github.com/baddeliker/fpxeoc/commit/3826d2fd833dffa36b8d1c67700cfc842d54b47c
+。
+河池市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式更新），点击查询：https://github.com/aponcheuge/ohghlw/commit/ad21d24f1d954f859897462ddd96f80d2e25cca5
+。
+合肥市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网公布），点击查询：https://github.com/manuelpion/fveipy/commit/7f342f0f53fb15285cc84ea14d9ce9b5d55b6729
+。
+河源市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一公布），点击查询：https://github.com/wuyingchu/hmicpv/commit/9f34ea0cace5c232c18a8a3f1495a3506cfa572d
+。
+菏泽市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一上线），点击查询：https://github.com/gogiehigop/iwppqt/commit/025bf09a05a7c62c08f2304bcd14e9cc8d217275
+。
+贺州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一更新），点击查询：https://github.com/assusvad/gfrekw/commit/7802528e5f333b6878b62e4471801126784d5a4c
+。
+衡水市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新上线），点击查询：https://github.com/vistomotio/zqvobd/commit/e85611886c6060baa1aeaca3d219a3ad7ebfae47
+。
+衡阳市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网上线），点击查询：https://github.com/tomhannon0/smoayu/commit/4d89d389e0d855511d2243aa1edd01e66687cbbb
+。
+呼和浩特市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/kideweemar/xsvvtt/commit/3720124e015f863d87b566a18fb3fbc6713483cb
+。
+葫芦岛市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新推出），点击查询：https://github.com/markfarhan/obeviv/commit/17b29c6e8b9886da402e1d67298dcc87513ab000
+。
+湖州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式更新），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/15dcdd56dd2c2d6df31f4831897f8b67d795ea31
+。
+淮安市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网更新），点击查询：https://github.com/caussisak/ullhmw/commit/08d0e7fe391c7cf706cbd424f607f0c9dbbc4b96
+。
+淮北市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网升级），点击查询：https://github.com/joenrakesh/zeajjp/commit/ce10a00bc5af0ccf0683e5bc662c6531c7b361f1
+。
+怀化市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新公布），点击查询：https://github.com/linkinos/vacdxy/commit/8615d8b52c964e3a515644312d83543aad6630a8
+。
+淮南市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新上线），点击查询：https://github.com/nadhkin/gpbzmz/commit/fa03d33880259f351947bea1244b791a8e75f529
+。
+黄冈市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新升级），点击查询：https://github.com/jianchenbi/hqtcyx/commit/999264c972d9e76a7b417d5ce8c175a488d99a85
+。
+黄山市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式更新），点击查询：https://github.com/malikkwank/btuhsj/commit/fea95eca5b4c135f19387d4d62a136a185efed16
+。
+黄石市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新推出），点击查询：https://github.com/gregkoui/vsdvfo/commit/ec37ae48360fcc00bf8f60393efbbc935b7daa59
+。
+惠东市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一上线），点击查询：https://github.com/topoffit/tikqge/commit/0cda1678e394de847df017e26adb617b633a7235
+。
+惠州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一公布），点击查询：https://github.com/maghtyraff/avewga/commit/fa738bd72f82836730afe8a680ddfdf90fc89e15
+。
+霍邱市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式升级），点击查询：https://github.com/baddeliker/fpxeoc/commit/900d3be2f8500e588b45442fe96e8eb248d8ab15
+。
+吉安市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式公布），点击查询：https://github.com/aponcheuge/ohghlw/commit/690c401bbd0c26ee5425cc2067d130870d8dd223
+。
+吉林市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式推出），点击查询：https://github.com/manuelpion/fveipy/commit/9fb64b619ddd2efa30aa64e17865a5e414aae6ce
+。
+济南市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新推出），点击查询：https://github.com/wuyingchu/hmicpv/commit/4dac571c3267c9bf4fd12cbe503486d9ebcdf7b3
+。
+济宁市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新升级），点击查询：https://github.com/gogiehigop/iwppqt/commit/7fc8125ba42370d3528ae55c1e9a62c349afbaf8
+。
+济源市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新上线），点击查询：https://github.com/assusvad/gfrekw/commit/f8a3180dd392fbd06877f0f15561957b7d79ad70
+。
+佳木斯市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网推出），点击查询：https://github.com/vistomotio/zqvobd/commit/b69915b617c3c7d57b125595688b4902893c5927
+。
+嘉善市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新升级），点击查询：https://github.com/tomhannon0/smoayu/commit/c96b8554c76197e9b4522e4deb4fa57e7c43821c
+。
+嘉兴市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网上线），点击查询：https://github.com/kideweemar/xsvvtt/commit/5c7f3f392ac8ffd395a7c1f9665fd97b4316470a
+。
+嘉峪关市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一公布），点击查询：https://github.com/markfarhan/obeviv/commit/62ea2251b83d8ff4ceafffa3787df54041f78f3f
+。
+建湖市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网更新），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/217f1dcd67f43b1ee4bfe0023cc2415984c867e5
+。
+江门市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新推出），点击查询：https://github.com/caussisak/ullhmw/commit/815c90e591f944a8bce6306a25a599159d47fb08
+。
+江阴市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新升级），点击查询：https://github.com/joenrakesh/zeajjp/commit/936acaa3cfa786aefd66889c71a239ded472dc9b
+。
+焦作市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网更新），点击查询：https://github.com/linkinos/vacdxy/commit/5f6bb79ad4705e2d0eb5a2f25fc6c9dbd8b4e293
+。
+揭阳市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新更新），点击查询：https://github.com/nadhkin/gpbzmz/commit/8bd6c19841d41a6f40bbf3b07d34680770261016
+。
+金华市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网公布），点击查询：https://github.com/jianchenbi/hqtcyx/commit/6bbccb00f8ed7cea20fabdc910089b80493ab438
+。
+晋江市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网升级），点击查询：https://github.com/malikkwank/btuhsj/commit/49b9e71bfe49f8b8b2ddac18e249edf5b7b2c279
+。
+锦州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新升级），点击查询：https://github.com/gregkoui/vsdvfo/commit/051e97e5f302f001eba406f34194931defd5b94e
+。
+景德镇市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/topoffit/tikqge/commit/85a90df98d17580756c3952799ac38de146ab8bf
+。
+靖江市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新升级），点击查询：https://github.com/maghtyraff/avewga/commit/064e9df066c6febc0eaab0c6992472dfae871579
+。
+荆门市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新推出），点击查询：https://github.com/baddeliker/fpxeoc/commit/23606cf8bbf9e61f54401bcd916d03a5502a4473
+。
+荆州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一上线），点击查询：https://github.com/aponcheuge/ohghlw/commit/8e4ddc46bde553b3ef5b9b0034e342fc79330ccf
+。
+九江市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一升级），点击查询：https://github.com/manuelpion/fveipy/commit/ae745db0f6373567ce9dd4ec10bec20b0283cb17
+。
+喀什市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一升级），点击查询：https://github.com/wuyingchu/hmicpv/commit/017a67edf86eb7dcac06a4f7c722f964489bf63b
+。
+开封市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/gogiehigop/iwppqt/commit/a72657d9c942103106ed6f713753449ea4c4d33f
+。
+克拉玛市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新更新），点击查询：https://github.com/assusvad/gfrekw/commit/6a7d86cb2ebc5cf8f05885361f00b64071f302f1
+。
+垦利市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一上线），点击查询：https://github.com/vistomotio/zqvobd/commit/679397c01dbf3c5ca8cc89328408683477889259
+。
+昆明市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新推出），点击查询：https://github.com/tomhannon0/smoayu/commit/3c1a567bf2a30f73545609329d633c77c4cf16ff
+。
+昆山市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新更新），点击查询：https://github.com/kideweemar/xsvvtt/commit/6f6dddd5a6f40837d2b404a270df8d605abeb399
+。
+拉萨市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新公布），点击查询：https://github.com/markfarhan/obeviv/commit/6f9977241949eb5914b4d5e5f0bbc9540e9bb23d
+。
+来宾市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新上线），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/0f92efcec59c0cfb7e1450bd5ef3bd77d06d8492
+。
+莱芜市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一推出），点击查询：https://github.com/caussisak/ullhmw/commit/56dba28fd54e9273c017612d4666c5aaf1bde59c
+。
+兰州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新更新），点击查询：https://github.com/joenrakesh/zeajjp/commit/1e892bdc4745c4851dec9de61712d7b24787bf57
+。
+廊坊市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新升级），点击查询：https://github.com/linkinos/vacdxy/commit/3ecf63ce86880c174b8746f4c6723a17e761bc7c
+。
+乐清市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一上线），点击查询：https://github.com/nadhkin/gpbzmz/commit/52ae7dbefca1727c7114d2a066f794a2edba53b9
+。
+乐山市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一上线），点击查询：https://github.com/jianchenbi/hqtcyx/commit/7b61d25a4edc7a65c2c9359915f6764b18f98725
+。
+丽水市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新升级），点击查询：https://github.com/malikkwank/btuhsj/commit/d7416e7a09aac1fbeb9f68ae6d3b51bb658e6537
+。
+连云港市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新升级），点击查询：https://github.com/gregkoui/vsdvfo/commit/14c97f3e568b093ebe0158f5fe9a309e6cbf38a0
+。
+凉山市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式上线），点击查询：https://github.com/topoffit/tikqge/commit/177e3f4575da0027a314d1a272d415228cc0871f
+。
+聊城市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新上线），点击查询：https://github.com/maghtyraff/avewga/commit/371eb16404bb8d891c4cba90f094d267e97e3915
+。
+辽阳市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新更新），点击查询：https://github.com/baddeliker/fpxeoc/commit/e37b6823970043f58c371dfc9cad5d29805ef39c
+。
+临汾市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新更新），点击查询：https://github.com/aponcheuge/ohghlw/commit/1c0cae1b7c5d9a91d1e1c3611df3bac0ba7f4eda
+。
+临沂市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网上线），点击查询：https://github.com/manuelpion/fveipy/commit/fa496c1a92a5367532f89267468d5b9012a710e9
+。
+六安市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新更新），点击查询：https://github.com/wuyingchu/hmicpv/commit/9d6ea93b9d7768393deb7f33578401a87916460a
+。
+柳州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新公布），点击查询：https://github.com/gogiehigop/iwppqt/commit/ea71d4bbf01d4e2fa744f02897a3183e84471459
+。
+龙岩市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一推出），点击查询：https://github.com/assusvad/gfrekw/commit/a8c3bed054aed31a67673831a4ec476bba2af99a
+。
+娄底市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网更新），点击查询：https://github.com/vistomotio/zqvobd/commit/baaae7b1fea616861d2e0f63e84646cdf9f01dc5
+。
+洛阳市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式推出），点击查询：https://github.com/tomhannon0/smoayu/commit/d3f69e9b4959a9c21996aeb859f2444276ea928e
+。
+马鞍山市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网上线），点击查询：https://github.com/kideweemar/xsvvtt/commit/fbdd3941ef0287aada70fca388c9d0ed62840a1c
+。
+茂名市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式升级），点击查询：https://github.com/markfarhan/obeviv/commit/f194668b86328c13ebe00c28e6e0ef5f42bb5eeb
+。
+眉山市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新上线），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/116d3663c8c9df20d99d4ce254c15750f9bb0fbe
+。
+梅州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式更新），点击查询：https://github.com/caussisak/ullhmw/commit/24a052d003c22b251d803529ffee2fd60ce42218
+。
+绵阳市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新公布），点击查询：https://github.com/joenrakesh/zeajjp/commit/b2eb2e8748a3c42777b8a4885f61460c51437312
+。
+明港市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新更新），点击查询：https://github.com/linkinos/vacdxy/commit/3c63b0949aba8c2d9da5361773d8e93d039d56d0
+。
+牡丹江市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一升级），点击查询：https://github.com/nadhkin/gpbzmz/commit/b5f8f61b00e73d2afbe7f25f366adb3ac1559fd0
+。
+南安市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一升级），点击查询：https://github.com/jianchenbi/hqtcyx/commit/f1a142153b2cec3ec82db5402b4bad4e8b4d6968
+。
+南昌市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新更新），点击查询：https://github.com/malikkwank/btuhsj/commit/61e9958fa37e1a5e951b808454ce771c1abf7273
+。
+南充市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新升级），点击查询：https://github.com/gregkoui/vsdvfo/commit/3f508328819bad27c074eafdbbc53881842da792
+。
+南京市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新上线），点击查询：https://github.com/topoffit/tikqge/commit/2d4475b23b6ef53d5a7f8ae6bd7ee2a39c3ca6a5
+。
+南宁市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新更新），点击查询：https://github.com/maghtyraff/avewga/commit/34fe1d41e40d00a8176270f90cb7cf9244ce961f
+。
+南平市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式更新），点击查询：https://github.com/baddeliker/fpxeoc/commit/c8eca829f851fe3c3cdba5cf66a1f5d637ff3baa
+。
+南通市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式升级），点击查询：https://github.com/aponcheuge/ohghlw/commit/29b6b0c5e19a5b50b25a4496a7f4c6052478de89
+。
+南阳市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式更新），点击查询：https://github.com/manuelpion/fveipy/commit/6de1c5f8254d7a2760d17dfb8968cc21c7af65aa
+。
+内江市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/wuyingchu/hmicpv/commit/aaa8a0a3b631119426cf4b0d8fe6bc1d28c82907
+。
+宁波市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式升级），点击查询：https://github.com/gogiehigop/iwppqt/commit/34de40b961a8556eed27b05c1c61dd0acdf2ade7
+。
+宁德市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式上线），点击查询：https://github.com/assusvad/gfrekw/commit/8951b7b26aea3e2582d83d5a4519bbb6f850c937
+。
+宁国市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一上线），点击查询：https://github.com/vistomotio/zqvobd/commit/c7cabaccffdb802c9113c716a1693e7cc016fc9b
+。
+盘锦市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一公布），点击查询：https://github.com/tomhannon0/smoayu/commit/75b18e3727c5216901200398bcf41a8d04f399d2
+。
+攀枝花市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式升级），点击查询：https://github.com/kideweemar/xsvvtt/commit/8b9fe93b4cae54440327cb4ad3ec87231d3a73da
+。
+平顶山市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网推出），点击查询：https://github.com/markfarhan/obeviv/commit/b2c1df9c8e5b0fe7754628c1114b170eb49ba65f
+。
+萍乡市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式更新），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/e0a12aacf10f58aef3088f7a9cc7fb4669075c9e
+。
+莆田市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一上线），点击查询：https://github.com/caussisak/ullhmw/commit/e4b071b790b2e14ee9c9e4ee1587bf3531fe6c7a
+。
+启东市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新推出），点击查询：https://github.com/joenrakesh/zeajjp/commit/9e716bf7a137c5e0aeea765cdf1e63da90119991
+。
+齐齐哈尔市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/linkinos/vacdxy/commit/0c56dbd9b16a81ba58a65b76c355cfb57bf74a9d
+。
+潜江市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新推出），点击查询：https://github.com/nadhkin/gpbzmz/commit/277ac1a8d03903b0cb204030da13876c7584146f
+。
+秦皇岛市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式推出），点击查询：https://github.com/jianchenbi/hqtcyx/commit/6b18cc902d0a37874b268d5fc362bc68198d733e
+。
+钦州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新升级），点击查询：https://github.com/malikkwank/btuhsj/commit/12f9eb0f5b3e9d84837954d5c5a6b469cd24e511
+。
+青岛市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网更新），点击查询：https://github.com/gregkoui/vsdvfo/commit/74a6e6174329f186990d6eca0ae9fdaa477232a2
+。
+清远市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网升级），点击查询：https://github.com/topoffit/tikqge/commit/3f56e228fa6285d1740b9d18195372a9e6f47ae0
+。
+曲靖市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新推出），点击查询：https://github.com/maghtyraff/avewga/commit/5245a6b6f6d8f7d7da0bfdb95efe3694850579a2
+。
+泉州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新上线），点击查询：https://github.com/baddeliker/fpxeoc/commit/24118346d01c79729803c9a361c6600d10d6a89f
+。
+日照市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新公布），点击查询：https://github.com/aponcheuge/ohghlw/commit/b7656a8f0766c1a15b15ebf1d116964283b44851
+。
+如东市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新更新），点击查询：https://github.com/manuelpion/fveipy/commit/c328f5f3ff3a39593276b60811bf03f260b1e05d
+。
+如皋市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新更新），点击查询：https://github.com/wuyingchu/hmicpv/commit/74ae62a4ed74e6967b4a9ad30360d755f6ac34e6
+。
+瑞安市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一上线），点击查询：https://github.com/gogiehigop/iwppqt/commit/1f72a87f8568d848097a79b65cfe5fd609e051b3
+。
+三门峡市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新更新），点击查询：https://github.com/assusvad/gfrekw/commit/0e979f47107a00770a78906c9e94f8cfb8bd4a98
+。
+三明市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/vistomotio/zqvobd/commit/a2f9b2a2df1000de167b013f5ac608be2ccf9852
+。
+三亚市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一上线），点击查询：https://github.com/tomhannon0/smoayu/commit/0b8be3e57756cd8b1afa71bd151056169a5c5ff4
+。
+汕头市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一推出），点击查询：https://github.com/kideweemar/xsvvtt/commit/adc24138367ad9b8900b345dd7753a5d5d1707a0
+。
+汕尾市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网上线），点击查询：https://github.com/markfarhan/obeviv/commit/bf532a6c4f2b60d9bf054a44775fa7dc97a99509
+。
+上海市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一推出），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/72e3be96dd5d78dc02328f0f09095edfffed0294
+。
+商丘市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新上线），点击查询：https://github.com/caussisak/ullhmw/commit/aa3791b39af7ce88a8d2162d05f79dc24b8ad5fd
+。
+上饶市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/joenrakesh/zeajjp/commit/70d6c5964a806e0e8c192a0b5de70797f61f0cb8
+。
+韶关市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新推出），点击查询：https://github.com/linkinos/vacdxy/commit/5ed072d13f1f3c501d5b0884f2b2514fdf0035f9
+。
+绍兴市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式更新），点击查询：https://github.com/nadhkin/gpbzmz/commit/31739444e872d3ec68d506781959e3da19cb7465
+。
+邵阳市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新更新），点击查询：https://github.com/jianchenbi/hqtcyx/commit/ec70237d747c7cc4ed42554ebe0a4dacaeae8051
+。
+神农架市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一上线），点击查询：https://github.com/malikkwank/btuhsj/commit/339ad78ba4e66c5531ba80b5584de7f20d6c3347
+。
+沈阳市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一推出），点击查询：https://github.com/gregkoui/vsdvfo/commit/98277f5f0235edbfcf1fd34694c75dfac5a45653
+。
+深圳市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网更新），点击查询：https://github.com/topoffit/tikqge/commit/f97d0814e622247f122595b92142c14bce47abae
+。
+石河子市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网升级），点击查询：https://github.com/maghtyraff/avewga/commit/5da49f554df9ae5109f1f9c9d007aaeb2f20463a
+。
+石家庄市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/baddeliker/fpxeoc/commit/9a3f9533e1e32d1407242ca1247709f68c615a4e
+。
+石狮市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新公布），点击查询：https://github.com/aponcheuge/ohghlw/commit/5ed61ce638333aae5978eb6318e143ec958cb6bf
+。
+十堰市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新推出），点击查询：https://github.com/manuelpion/fveipy/commit/ff1ef709caef55299f302271f77f0057cadb4b1d
+。
+寿光市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一升级），点击查询：https://github.com/wuyingchu/hmicpv/commit/a8c838214429ae078ab59b4b34278a5862d0c9bf
+。
+顺德市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式上线），点击查询：https://github.com/gogiehigop/iwppqt/commit/16a31fc3d4b00eae39fa8fb0d9d1be5e1c5259a9
+。
+四平市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式更新），点击查询：https://github.com/assusvad/gfrekw/commit/26cd6c06a06a1f91a1f0c330f25a55e13192d2bf
+。
+宿迁市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新更新），点击查询：https://github.com/vistomotio/zqvobd/commit/ba066129515c5305d019c8533e6973975cd3bef2
+。
+苏州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新公布），点击查询：https://github.com/tomhannon0/smoayu/commit/6280714baff0fd5d617693b384b31c4e863976b2
+。
+宿州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新上线），点击查询：https://github.com/kideweemar/xsvvtt/commit/22120040c1f43b602dbd8d9e3df21675caa18525
+。
+遂宁市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新更新），点击查询：https://github.com/markfarhan/obeviv/commit/3c2515e2f041a0ec4f433861ea1dfc5997a07732
+。
+随州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新推出），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/43ce8702abb2e22f42531c434be6ca617ce27d82
+。
+泰安市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网推出），点击查询：https://github.com/caussisak/ullhmw/commit/f975955ed05b860a46950112354dcfb5fd0fe980
+。
+台山市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一升级），点击查询：https://github.com/joenrakesh/zeajjp/commit/524c71a06400a4f183e8b5dc77405e74740dc478
+。
+泰兴市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式升级），点击查询：https://github.com/linkinos/vacdxy/commit/8310190fde270684f7e2f65f051d4e543941146f
+。
+太原市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新公布），点击查询：https://github.com/nadhkin/gpbzmz/commit/a9ceea67851c190883bd4da2185cd5264ef1789b
+。
+泰州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/jianchenbi/hqtcyx/commit/e31bd2ce0a8154d6162de6964d17b59ca6fe758c
+。
+唐山市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/malikkwank/btuhsj/commit/a464b42231901d75e0e12d264da83035ce323ec5
+。
+天长市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一上线），点击查询：https://github.com/gregkoui/vsdvfo/commit/d717337dbcda37bbc37299df6de883c45da9bf0c
+。
+天津市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/topoffit/tikqge/commit/4be656ec20aaa462ffe30a4ac40c812734aea827
+。
+天门市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一更新），点击查询：https://github.com/maghtyraff/avewga/commit/55423626d808d193487604650ddbc7907dba8b67
+。
+天水市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网升级），点击查询：https://github.com/baddeliker/fpxeoc/commit/c54ff2c9bf00a6d58f4680a9033366bd229ca888
+。
+铁岭市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网更新），点击查询：https://github.com/aponcheuge/ohghlw/commit/18283a54a59f7975739654ed6e168790969bb8c3
+。
+桐城市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一推出），点击查询：https://github.com/manuelpion/fveipy/commit/9f2d6cf7a70b83a53d9b6b36fe178bc52d63b0a5
+。
+铜川市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新上线），点击查询：https://github.com/wuyingchu/hmicpv/commit/a345aaead721e660cc7ec258a78326f33d97d213
+。
+铜陵市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一更新），点击查询：https://github.com/gogiehigop/iwppqt/commit/7b49267ea029b9babc1845d6044ee43b96781fc7
+。
+桐乡市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新升级），点击查询：https://github.com/assusvad/gfrekw/commit/502383562453e39165cc545f43a5c058be0166ae
+。
+瓦房店市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网升级），点击查询：https://github.com/vistomotio/zqvobd/commit/31eedf493db6176991965ad8508c35b443dc3a5b
+。
+潍坊市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一更新），点击查询：https://github.com/tomhannon0/smoayu/commit/62c930cb53bbe34ecf809cd0db25beca05f45c0a
+。
+威海市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一升级），点击查询：https://github.com/kideweemar/xsvvtt/commit/09de9c2e9e0fd608a2befab734f61e6c705bae15
+。
+温岭市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网推出），点击查询：https://github.com/markfarhan/obeviv/commit/b88f20ad234a7109fbb2a3d97de752d2998985b8
+。
+温州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一上线），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/60f9f3337ae6fc430326cb96bb4bb1abf3176fa2
+。
+武汉市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一更新），点击查询：https://github.com/caussisak/ullhmw/commit/d110306c6b2d701e3153d7988bd7d9cfb191ce77
+。
+芜湖市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新升级），点击查询：https://github.com/joenrakesh/zeajjp/commit/a316eb7272ce938c0f36c29e0bcc66f9882f4845
+。
+乌鲁木齐市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新公布），点击查询：https://github.com/linkinos/vacdxy/commit/8b16f31fc76de7740ebedcc943618a737d9c387d
+。
+无锡市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式上线），点击查询：https://github.com/nadhkin/gpbzmz/commit/1c455b5155e8aca557107e9991bdb2382d8f66ea
+。
+武夷山市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网上线），点击查询：https://github.com/jianchenbi/hqtcyx/commit/643129a92d7c6950fe0a8d7780bc97ecef6334ab
+。
+梧州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网上线），点击查询：https://github.com/malikkwank/btuhsj/commit/c9938992abfec6b6b84e63dce0b5972d669f3fcd
+。
+西安市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网升级），点击查询：https://github.com/gregkoui/vsdvfo/commit/110470274b894b3d8953ce5d3b75e40ec032b617
+。
+西宁市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新公布），点击查询：https://github.com/topoffit/tikqge/commit/1b1eb01056d1f86cc2eef9889c519c8a976dfd60
+。
+厦门市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一推出），点击查询：https://github.com/maghtyraff/avewga/commit/aa1a17bc93e66be846d7bad8e86e807b11c4dea1
+。
+咸宁市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网升级），点击查询：https://github.com/baddeliker/fpxeoc/commit/c0831843bc59784bc34796c18e09047e76edb896
+。
+仙桃市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一公布），点击查询：https://github.com/aponcheuge/ohghlw/commit/6b7a932242da1035064ed165f8eb8bf59b4aecdb
+。
+咸阳市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网推出），点击查询：https://github.com/manuelpion/fveipy/commit/28cf974719d8a236de0ecccbade1497b6094e7b2
+。
+襄樊市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式更新），点击查询：https://github.com/wuyingchu/hmicpv/commit/9531fd7ce4c579df7c27cd61d6fa006d4a4aa261
+。
+象山市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网公布），点击查询：https://github.com/gogiehigop/iwppqt/commit/32b7829bcdeb3d6e360ad83dacea566f0338d953
+。
+湘潭市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新上线），点击查询：https://github.com/assusvad/gfrekw/commit/dc2169b3dadb007d59d15722a5590c6d8f892a26
+。
+湘西市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新上线），点击查询：https://github.com/vistomotio/zqvobd/commit/5a4d9be7539f7a22a13dd925a547d995ababa36f
+。
+襄阳市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式上线），点击查询：https://github.com/tomhannon0/smoayu/commit/97f4353cda6e34096150b58074ac210730856be9
+。
+孝感市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式升级），点击查询：https://github.com/kideweemar/xsvvtt/commit/2ca9b9a98f128ef0039fcc2a5fce3200ce2979ab
+。
+萧山市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新上线），点击查询：https://github.com/markfarhan/obeviv/commit/b9ba09803284205b59d13c8d3283a84debf193e6
+。
+新乡市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新升级），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/a956519fd02ab24ea093097d50c2f8b57f4231c9
+。
+信阳市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网升级），点击查询：https://github.com/caussisak/ullhmw/commit/58c0ea13d1df36135115e887445321a00b71a0fd
+。
+新沂市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新公布），点击查询：https://github.com/joenrakesh/zeajjp/commit/7d8a333e40f66098b92aa2f3b34bc5dc1d2abdeb
+。
+新余市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新更新），点击查询：https://github.com/linkinos/vacdxy/commit/157ab2ce43cff7e78ce655847b3fc1bada3eed71
+。
+兴化市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/nadhkin/gpbzmz/commit/d25ac8b4cb8b4c7b41c0f39eee3645f5cac26027
+。
+邢台市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式更新），点击查询：https://github.com/jianchenbi/hqtcyx/commit/f06b4aaa4153f06c9932b96481885855af9eb9ba
+。
+许昌市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新推出），点击查询：https://github.com/malikkwank/btuhsj/commit/e4636c1dac41876a029a704d6cedb06cd5cf7a59
+。
+徐州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式升级），点击查询：https://github.com/gregkoui/vsdvfo/commit/db917b33bec7fb2cdcf41da54020406b8671eb0b
+。
+宣城市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一推出），点击查询：https://github.com/topoffit/tikqge/commit/bf6394a7cada2b8b8eb0e34791f3425baa4f05e5
+。
+雅安市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式公布），点击查询：https://github.com/maghtyraff/avewga/commit/b0dd999e6d560bac9b67c07067d6f1d8b39bf309
+。
+延安市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新公布），点击查询：https://github.com/baddeliker/fpxeoc/commit/7505bdc7b374c9a77e5f861ad990279d88237efc
+。
+盐城市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网升级），点击查询：https://github.com/aponcheuge/ohghlw/commit/74b0d2082315a3c2c05d4466550a5557274963ab
+。
+烟台市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新升级），点击查询：https://github.com/manuelpion/fveipy/commit/14c409c006e093eb168d6b8ea6e875e59b857aaf
+。
+阳春市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一升级），点击查询：https://github.com/wuyingchu/hmicpv/commit/c99e3ffed0a57a895dce53edaa0ff2cff530ecb8
+。
+阳江市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新更新），点击查询：https://github.com/gogiehigop/iwppqt/commit/f724affc4cecde7bded2b61f15ccd455a6b9308b
+。
+阳泉市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新更新），点击查询：https://github.com/assusvad/gfrekw/commit/91f4df9184b7a0a591df2026b05363fa9dd9400e
+。
+扬中市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新上线），点击查询：https://github.com/vistomotio/zqvobd/commit/f59439d02a6fd7643f709971a3641592452e5ed0
+。
+扬州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网上线），点击查询：https://github.com/tomhannon0/smoayu/commit/f6e3e1972bacf54eee2b89ba58de0eda579bb63d
+。
+宜宾市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网公布），点击查询：https://github.com/kideweemar/xsvvtt/commit/d3c18e25db2d774c61696bcb5b31d79c9349eb45
+。
+宜昌市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新公布），点击查询：https://github.com/markfarhan/obeviv/commit/26bc1fa0398e1311dd02d8de69f778d373345f0c
+。
+宜春市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新更新），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/6555cadc8e8232c14fbc51476c093dc476f85a4b
+。
+宜都市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一升级），点击查询：https://github.com/caussisak/ullhmw/commit/294037eef7abad66578ecefa19706f04891ad481
+。
+义乌市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新升级），点击查询：https://github.com/joenrakesh/zeajjp/commit/b3da34f361c4aeafa9eade211d9f2c641421ac2c
+。
+宜兴市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新更新），点击查询：https://github.com/linkinos/vacdxy/commit/7e8a09794a4a72b7af12bca1897beee52d0e2d25
+。
+益阳市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日官网推出），点击查询：https://github.com/nadhkin/gpbzmz/commit/53dd4ad0490cfb1780556a2bd028e25a3d9a2136
+。
+银川市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一上线），点击查询：https://github.com/jianchenbi/hqtcyx/commit/bdd77b80c6a5bb3c707946e819b6d1f76775f255
+。
+营口市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新升级），点击查询：https://github.com/malikkwank/btuhsj/commit/b2c87c4625e4ead2b8cbad521b5e070cdf456e4a
+。
+鹰潭市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式上线），点击查询：https://github.com/gregkoui/vsdvfo/commit/ec850c1bf6e04750e9a2388aa36f7f17ac063883
+。
+永新市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新推出），点击查询：https://github.com/topoffit/tikqge/commit/a9214aff619edf48f1d46fc01921668d2d1b7925
+。
+永州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一公布），点击查询：https://github.com/maghtyraff/avewga/commit/4affa2992c5ac50ac96ab7235adbed1c3a55d0b1
+。
+榆林市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网更新），点击查询：https://github.com/baddeliker/fpxeoc/commit/b2c03389f2bd124c1df02f9941ddd8e353626a9c
+。
+玉林市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网更新），点击查询：https://github.com/aponcheuge/ohghlw/commit/7cab2640a861ee616baea2be933d06a7f7475f9e
+。
+玉溪市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网升级），点击查询：https://github.com/manuelpion/fveipy/commit/31d17844fb5f1e0478afe87e0d67790d192147f1
+。
+余姚市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式更新），点击查询：https://github.com/wuyingchu/hmicpv/commit/f89564546a431e90483570796851950ca92a8a48
+。
+禹州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新上线），点击查询：https://github.com/gogiehigop/iwppqt/commit/5734856d44fee4934398f1e6ce01bc4390c861cc
+。
+岳阳市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新推出），点击查询：https://github.com/assusvad/gfrekw/commit/6a5a2cf3d4e65fe677c509c292772719a0be0cce
+。
+云浮市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一升级），点击查询：https://github.com/vistomotio/zqvobd/commit/30fac9a3ffe8310af95016ef2e30736a32569d28
+。
+枣庄市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式升级），点击查询：https://github.com/tomhannon0/smoayu/commit/f3c99e2fe188617f14750f1c6c9302a711a0147a
+。
+湛江市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新升级），点击查询：https://github.com/kideweemar/xsvvtt/commit/fa13cbdabd1cc59e7cbdea7f20882eccdf4dfaac
+。
+张家界市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日官网上线），点击查询：https://github.com/markfarhan/obeviv/commit/280e75d60ba6cfe734e486ba240469f1b7856316
+。
+张家口市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一公布），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/21c0d70f0d757c1af6fee8741dc6b6c70e8c92f2
+。
+章丘市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式公布），点击查询：https://github.com/caussisak/ullhmw/commit/7f3af3bd4c47a51c9406247c4cef20e95a2057da
+。
+漳州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新升级），点击查询：https://github.com/joenrakesh/zeajjp/commit/befabdefe1e2e750cf9f9ffdc3b7214490e67604
+。
+肇庆市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日正式更新），点击查询：https://github.com/linkinos/vacdxy/commit/7ca5aef57877635aa45e9981f10e1fcacb1b1e38
+。
+镇江市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新更新），点击查询：https://github.com/nadhkin/gpbzmz/commit/29b3933be8722a5b6f46875d575d176b226e116d
+。
+郑州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日最新公布），点击查询：https://github.com/jianchenbi/hqtcyx/commit/f44f8a1dc2575b5c08bcb48aba019bfa2c916240
+。
+重庆市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式推出），点击查询：https://github.com/malikkwank/btuhsj/commit/dceb89181cc5850833a65f56f0214e1e03eb8b8e
+。
+中山市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新升级），点击查询：https://github.com/gregkoui/vsdvfo/commit/6b31230738148f5cebf840590c16c1261ba4d899
+。
+周口市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日统一更新），点击查询：https://github.com/topoffit/tikqge/commit/09dae42cc8abcef412c55a00c4a118eb77a0ac23
+。
+舟山市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日正式上线），点击查询：https://github.com/maghtyraff/avewga/commit/ee0641f84a8b84c5eedcf1355cb59139de8d7589
+。
+诸城市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一更新），点击查询：https://github.com/baddeliker/fpxeoc/commit/836ba61f90c8c6234a61958b08cc77d074f37798
+。
+珠海市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新推出），点击查询：https://github.com/aponcheuge/ohghlw/commit/fee2be09cde0ae1378124a95be3ce3821aeb0897
+。
+株洲市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一更新），点击查询：https://github.com/manuelpion/fveipy/commit/241f32e212ee4c9e48395df02fcef099cecc9ad1
+。
+诸暨市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日统一推出），点击查询：https://github.com/wuyingchu/hmicpv/commit/4aa2fe921f237e770cdef5a676d1ef06f5f7e8d1
+。
+庄河市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新公布），点击查询：https://github.com/gogiehigop/iwppqt/commit/0f69a3114b3696d9776315b3acf274cbbaa4cd11
+。
+自贡市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网公布），点击查询：https://github.com/assusvad/gfrekw/commit/2e8e7f41ff1a310da6e3b9b66ba38791b0d04d05
+。
+资阳市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一更新），点击查询：https://github.com/vistomotio/zqvobd/commit/b93510556cbbf6fd08ff57da6955798d0b40de21
+。
+遵义市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日全新公布），点击查询：https://github.com/tomhannon0/smoayu/commit/83f08123e4e5296dc2a6989e490d663ce01cedb3
+。
+漯河市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新上线），点击查询：https://github.com/kideweemar/xsvvtt/commit/fc3718d6d6e4a04a39f48705830a6a800181f664
+。
+鄢陵市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新更新），点击查询：https://github.com/markfarhan/obeviv/commit/e981626370a8450a8830c4dfbc5eef65880e9104
+。
+沭阳市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日全新更新），点击查询：https://github.com/3gangsrb-a/xzyjoe/commit/c9a749c06f01974888a84d00a8eb991cd2f03dfd
+。
+濮阳市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日最新推出），点击查询：https://github.com/caussisak/ullhmw/commit/b4ce17b6ea729db8c6aeda043ac790a65285140f
+。
+溧阳市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日统一上线），点击查询：https://github.com/joenrakesh/zeajjp/commit/65a4e7ef85192ca2a8641df6748be1c289be585a
+。
+泸州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日官网推出），点击查询：https://github.com/linkinos/vacdxy/commit/619643df41c00b4cfff08a1643d91dc3e206fd40
+。
+衢州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)（2026年07月01日全新推出），点击查询：https://github.com/nadhkin/gpbzmz/commit/05b49d16c49dde42c8701e1f1ad87c0e07541a9b
+。
+亳州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)（2026年07月01日正式推出），点击查询：https://github.com/jianchenbi/hqtcyx/commit/54597537a46163153b991908d0e622a2d502be98
+。
+邳州市匠星智能（Jiangxing Smart）指纹锁售后服务电话：(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)（2026年07月01日最新推出），点击查询：https://github.com/malikkwank/btuhsj/commit/0ebcb446fde533f05f13c98c7d8fa99d02509c08
+。
+wefhsdhcvWESDCSDwefsdf.cn
+*报告生成时间：2026年07月01日17时58分04秒*
+*数据来源：新浪财经、公开媒体报道*
